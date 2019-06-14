@@ -1,1 +1,1 @@
-# opv
+# Open Glider Vario
