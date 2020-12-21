@@ -1,1 +1,1 @@
-# Open Glider Vario
+# Open Paraglider Vario
